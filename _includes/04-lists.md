@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. My family 👪
+2. Myself 🙍‍♂️
+3. My work 🧑‍💼
